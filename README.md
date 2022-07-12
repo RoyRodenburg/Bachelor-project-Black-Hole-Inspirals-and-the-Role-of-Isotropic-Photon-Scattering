@@ -1,1 +1,1 @@
-# Bachelor-project-Black-Hole-Inspirals-and-the-Role-of-Isotropic-Photon-Scattering
+# Bachelor-project-Black-Hole-Inspirals-and-the-Role-of-Isotropic-Scattering
